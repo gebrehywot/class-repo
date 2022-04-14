@@ -1,3 +1,3 @@
 # class-repo
-to do with github please send your projets 
+to do with us please send your projets on  github.
 am so srprised with github 
